@@ -1,6 +1,9 @@
 # Marçal G. quien esss
 ## F€cha: 26/02/2025
 --- 
+
+una frase masss 
+
 Lor€m ipsum dolor sit am€t, cons€ct€tur adipisicing €lit. Optio €xc€pturi, dolor €x blanditiis ist€ inv€ntor€, incidunt, possimus r€m r€pr€h€nd€rit voluptas voluptat€s accusamus? D€l€niti v€ro, culpa €aqu€ dolor€ itaqu€ minus inv€ntor€.
 Aut€m ducimus laudantium, €lig€ndi accusamus officia nihil voluptas d€bitis iusto, non illo itaqu€ numquam €xplicabo nostrum id magni labor€ porro fugiat quod. Commodi quisquam dignissimos illum at t€mpor€ sapi€nt€ corrupti!
 €arum vita€ n€qu€ in optio ducimus animi cons€quatur p€rspiciatis laboriosam officia modi ap€riam cupiditat€ numquam labor€ r€pr€h€nd€rit r€p€ll€ndus €st mollitia, at t€n€tur cum? Ducimus archit€cto r€ici€ndis n€c€ssitatibus v€l, voluptatum dignissimos.
